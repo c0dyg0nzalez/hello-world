@@ -6,4 +6,4 @@ Hi I am c0dyg0nzalez! I am an electrical/mechanical engineering apprentice looki
 
 I am a guitarist and like gaming.
 
-I will be king.
+I am king.
